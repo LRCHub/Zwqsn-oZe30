@@ -1,4 +1,4 @@
-# この – IRIS OUT/この＠あ cover
+# Kenshi Yonezu – IRIS OUT
 
 > **歌詞登録ステータス：同期歌詞あり**
 
